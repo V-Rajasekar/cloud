@@ -9,12 +9,11 @@
 
 ```mermaid
 graph LR
-
-A[Web server] --> B[Data server]
-Note right of A: fdf
+	graph LR
+	id1[Web server] --> id2[Data server]
 ```
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyNjE1MTY4MF19
+eyJoaXN0b3J5IjpbODUwMTI1NTI0XX0=
 -->
