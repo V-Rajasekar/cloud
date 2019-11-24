@@ -11,9 +11,11 @@
 
 graph LR
 	id1[Web server] --> id2[Data server]
+
 ```
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2NzMzMTQ1ODgsODUwMTI1NTI0XX0=
+eyJoaXN0b3J5IjpbNDgxNDcxNDc4LC0xNjczMzE0NTg4LDg1MD
+EyNTUyNF19
 -->
