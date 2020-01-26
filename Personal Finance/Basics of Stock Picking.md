@@ -7,6 +7,10 @@
  2. See there 5 years finanical records
 
 
+Some Sites to identify the stocks
+[https://www.screener.in/guides/creating-screens/](https://www.screener.in/guides/creating-screens/)
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYxMjgzNDU5Nl19
+eyJoaXN0b3J5IjpbNDEyNzczNTg4LC02MTI4MzQ1OTZdfQ==
 -->
