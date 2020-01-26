@@ -10,6 +10,8 @@
 > What is the company doing?
 > Check the companies annual report to see their business vertical.
 > Check there revenue chart ( Revenue and Earning before TAX)
+> Revenue (sales)
+> Earning before TAX(Profite)
 >EV/EBITDA valudation method.
 >
 ## Reference
@@ -17,6 +19,6 @@
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg2MjAzNzU3MCwtMjEyOTI2MTkzLDIxND
+eyJoaXN0b3J5IjpbLTg5NzEwNjYwOSwtMjEyOTI2MTkzLDIxND
 EyNjUxNDMsNDEyNzczNTg4LC02MTI4MzQ1OTZdfQ==
 -->
