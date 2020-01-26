@@ -9,6 +9,8 @@
 ## How to  value a stock ?
 > What is the company doing?
 > Check the companies annual report to see their business vertical.
+> Check there revenue chart
+> Revenue and Earning before TA
 >EV/EBITDA valudation method.
 >
 ## Reference
@@ -16,6 +18,6 @@
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjc2MTkxNTM0LC0yMTI5MjYxOTMsMjE0MT
+eyJoaXN0b3J5IjpbOTAzMTQyNTY5LC0yMTI5MjYxOTMsMjE0MT
 I2NTE0Myw0MTI3NzM1ODgsLTYxMjgzNDU5Nl19
 -->
