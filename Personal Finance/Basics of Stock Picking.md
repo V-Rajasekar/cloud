@@ -3,7 +3,10 @@
 
 ## Basics of Stock picking
 
-Find Zero debt stocks
+ 1. Find Zero debt or liabilities companies
+ 2. See there 5 years finanical records
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjI4MzAyODM0XX0=
+eyJoaXN0b3J5IjpbLTYxMjgzNDU5Nl19
 -->
