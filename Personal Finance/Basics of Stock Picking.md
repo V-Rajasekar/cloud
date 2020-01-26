@@ -14,7 +14,8 @@
 * Check the companies annual report to see there business vertical and their financial report
 * Check there Revenue and Earning before TAX chart.
 	1.	Go to moneycontrol.com or screener.in 
-	2.	
+	2.	 Search the company and go to the Financials section
+	3.	Check there topline and bott
 
 >EV/EBITDA valudation method.
 >
@@ -23,7 +24,7 @@
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ4NTAwNjgyNCwxODMxODkwMTIzLDExOT
-I1NjkwMzIsLTIxMjkyNjE5MywyMTQxMjY1MTQzLDQxMjc3MzU4
-OCwtNjEyODM0NTk2XX0=
+eyJoaXN0b3J5IjpbLTEwMDU1MjIxNDgsMTgzMTg5MDEyMywxMT
+kyNTY5MDMyLC0yMTI5MjYxOTMsMjE0MTI2NTE0Myw0MTI3NzM1
+ODgsLTYxMjgzNDU5Nl19
 -->
