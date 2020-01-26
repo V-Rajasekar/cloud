@@ -11,7 +11,7 @@
 2. How is there finance looks?
 * Check the companies annual report to see there business vertical and their financial report
 * Check there Revenue and Earning before TAX chart.
-* 
+> Go to moneycontrol.com or screener.in 
 
 >EV/EBITDA valudation method.
 >
@@ -20,7 +20,7 @@
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5NTc2NDQ2NDksMTE5MjU2OTAzMiwtMj
-EyOTI2MTkzLDIxNDEyNjUxNDMsNDEyNzczNTg4LC02MTI4MzQ1
-OTZdfQ==
+eyJoaXN0b3J5IjpbMTgzMTg5MDEyMywxMTkyNTY5MDMyLC0yMT
+I5MjYxOTMsMjE0MTI2NTE0Myw0MTI3NzM1ODgsLTYxMjgzNDU5
+Nl19
 -->
