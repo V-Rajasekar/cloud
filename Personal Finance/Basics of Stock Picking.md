@@ -9,8 +9,8 @@
 ## How to  value a stock ?
 1. what is the company doing?
 2. How is there finance looks?
-Check the companies annual report to see there business ver
-> Check there revenue chart ( Revenue and Earning before TAX)
+Check the companies annual report to see there business vertical and their finance
+* Check there revenue chart ( Revenue and Earning before TAX)
 > Revenue (sales)
 > Earning before TAX(Profite)
 >EV/EBITDA valudation method.
@@ -20,6 +20,6 @@ Check the companies annual report to see there business ver
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTgzMTcwODU2LC0yMTI5MjYxOTMsMjE0MT
-I2NTE0Myw0MTI3NzM1ODgsLTYxMjgzNDU5Nl19
+eyJoaXN0b3J5IjpbMTE5MjU2OTAzMiwtMjEyOTI2MTkzLDIxND
+EyNjUxNDMsNDEyNzczNTg4LC02MTI4MzQ1OTZdfQ==
 -->
