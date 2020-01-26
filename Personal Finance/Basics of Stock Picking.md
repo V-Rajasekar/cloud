@@ -18,14 +18,15 @@
 	3.	Check there topline(Revenue/sales) and bottomline(Profite before tax/profit)
 	4.	Long term borrowings.
 
->EV/EBITDA valudation method.
+## Stock valuation model (EV/EBITDA)
+> Its 
 >
 ## Reference
 [https://www.screener.in/guides/creating-screens/](https://www.screener.in/guides/creating-screens/)
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwMjUyNjg2MzMsMTgzMTg5MDEyMywxMT
+eyJoaXN0b3J5IjpbLTEyMjYzMzMyMDQsMTgzMTg5MDEyMywxMT
 kyNTY5MDMyLC0yMTI5MjYxOTMsMjE0MTI2NTE0Myw0MTI3NzM1
 ODgsLTYxMjgzNDU5Nl19
 -->
