@@ -19,14 +19,14 @@
 	4.	Long term borrowings.
 
 ## Stock valuation model (EV/EBITDA)
-> Its 
+Its a type of stock valuation model to find the entry and exit price for a stock. 
 >
 ## Reference
 [https://www.screener.in/guides/creating-screens/](https://www.screener.in/guides/creating-screens/)
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMjYzMzMyMDQsMTgzMTg5MDEyMywxMT
-kyNTY5MDMyLC0yMTI5MjYxOTMsMjE0MTI2NTE0Myw0MTI3NzM1
-ODgsLTYxMjgzNDU5Nl19
+eyJoaXN0b3J5IjpbNzcxNTU2ODQ1LDE4MzE4OTAxMjMsMTE5Mj
+U2OTAzMiwtMjEyOTI2MTkzLDIxNDEyNjUxNDMsNDEyNzczNTg4
+LC02MTI4MzQ1OTZdfQ==
 -->
