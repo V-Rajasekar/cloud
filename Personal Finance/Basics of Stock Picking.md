@@ -9,9 +9,12 @@
 ## How to  value a stock ?
 1. what is the company doing?
 2. How is there finance looks?
+
+**Checklist**
 * Check the companies annual report to see there business vertical and their financial report
 * Check there Revenue and Earning before TAX chart.
-> Go to moneycontrol.com or screener.in 
+	1.	Go to moneycontrol.com or screener.in 
+	2.	
 
 >EV/EBITDA valudation method.
 >
@@ -20,7 +23,7 @@
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTgzMTg5MDEyMywxMTkyNTY5MDMyLC0yMT
-I5MjYxOTMsMjE0MTI2NTE0Myw0MTI3NzM1ODgsLTYxMjgzNDU5
-Nl19
+eyJoaXN0b3J5IjpbLTQ4NTAwNjgyNCwxODMxODkwMTIzLDExOT
+I1NjkwMzIsLTIxMjkyNjE5MywyMTQxMjY1MTQzLDQxMjc3MzU4
+OCwtNjEyODM0NTk2XX0=
 -->
