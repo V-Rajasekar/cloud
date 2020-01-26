@@ -7,7 +7,8 @@
  2. See there 5 years finanical records
 
 ## How to  value a stock ?
-> What is the company doing?
+what is the company doing?
+How is there finance looks?
 > Check the companies annual report to see their business vertical.
 > Check there revenue chart ( Revenue and Earning before TAX)
 > Revenue (sales)
@@ -19,6 +20,6 @@
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg5NzEwNjYwOSwtMjEyOTI2MTkzLDIxND
-EyNjUxNDMsNDEyNzczNTg4LC02MTI4MzQ1OTZdfQ==
+eyJoaXN0b3J5IjpbLTIwNjQzNTg1NzYsLTIxMjkyNjE5MywyMT
+QxMjY1MTQzLDQxMjc3MzU4OCwtNjEyODM0NTk2XX0=
 -->
