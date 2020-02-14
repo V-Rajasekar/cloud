@@ -5,8 +5,7 @@
 
 ### This chapter is a summary of the emtire Bhagavad-Gita. Many subjects are explained such as: karma yoga, jnana yoga, sankhya yoga, buddhi yoga and the atma which is the soul and the supersoul.
 
-**Sthita Prajna**
- what is the definition of one whose mind is steady and one-pointed? How does he sit, walk, what does he do? Then Krishna tells him, just as a tortoise withdraws his limbs inside the shell and nothing hurts him, one who possesses sthita prajna (stabilized consciousness) withdraws all his senses and the thoughts don’t hurt him. He does get worries and anxiety, but he is not affected by them.
+
 
 #### Verse 58
 
@@ -15,10 +14,8 @@
 > **indriyanindriyarthebhyas   tasya prajna pratisthita"**
 
 
-
-     One who is able to withdraw his senses from sense objects,
-     as the tortoise draws his limbs within the shell,
-     is to be understood as truly his wisdom is established.
+**Sthita Prajna**
+ what is the definition of one whose mind is steady and one-pointed? How does he sit, walk, what does he do? Then Krishna tells him, just as a tortoise withdraws his limbs inside the shell and nothing hurts him, one who possesses sthita prajna (stabilized consciousness) withdraws all his senses and the thoughts don’t hurt him. He does get worries and anxiety, but he is not affected by them.
 
 I have to control my 5 senses (touch, sight, hearing, smell and taste) and the sense center(mind) inorder to awaken the 6 sense. One cannot sense the above senses if his sense center is not focused. You might have realised many times when someone speaks to you when your focused on something(e.g) watching a movie. Eventhough your ears is out there it is not picking what the person is spoke to you it is because the sense center is focused in the movie. 
 
@@ -31,7 +28,7 @@ I have to control my 5 senses (touch, sight, hearing, smell and taste) and the s
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk1NTY4NjcwNywtMTc5OTc0NjYwMCwyNj
-g4NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3MywzNTQyMzY2Nzdd
-fQ==
+eyJoaXN0b3J5IjpbLTIwNTQyNzgzMTksLTE3OTk3NDY2MDAsMj
+Y4ODc0NzcyLDcwNjc1Mjk0OCw3NjA5MDU0NzMsMzU0MjM2Njc3
+XX0=
 -->
