@@ -17,8 +17,10 @@
      as the tortoise draws his limbs within the shell,
      is to be understood as truly his wisdom is established.
 
-I have to control my 5 senses (touch, sight, hearing, smell and taste) and the sense center(mind) inorder to awaken the 6 sense. One cannot sense the above senses if his sense center is not focused. You might have realised many times when someone speaks to you when your focused on something(e.g) watching a movie. Eventhough your ears is out there it is not picking what the person is 
+I have to control my 5 senses (touch, sight, hearing, smell and taste) and the sense center(mind) inorder to awaken the 6 sense. One cannot sense the above senses if his sense center is not focused. You might have realised many times when someone speaks to you when your focused on something(e.g) watching a movie. Eventhough your ears is out there it is not picking what the person is spoke to you it is because the sense center is focused in the movie. 
+
+##### How to control the senses?
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg5OTYyMDIzNyw3NjA5MDU0NzMsMzU0Mj
+eyJoaXN0b3J5IjpbLTgzMTc0MTI2MSw3NjA5MDU0NzMsMzU0Mj
 M2Njc3XX0=
 -->
