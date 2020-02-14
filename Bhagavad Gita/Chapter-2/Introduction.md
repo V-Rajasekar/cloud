@@ -17,8 +17,8 @@
      as the tortoise draws his limbs within the shell,
      is to be understood as truly his wisdom is established.
 
-I have to control my 5 senses (touch, sight, hearing, smell and taste) and the sense center(mind) inorder to a
+I have to control my 5 senses (touch, sight, hearing, smell and taste) and the sense center(mind) inorder to awaken the 6 sense. One cannot sense the above senses if his sense center is not focused. Yo
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0NDc0MTg3NjksNzYwOTA1NDczLDM1ND
-IzNjY3N119
+eyJoaXN0b3J5IjpbLTE3MDg5Mjk2NCw3NjA5MDU0NzMsMzU0Mj
+M2Njc3XX0=
 -->
