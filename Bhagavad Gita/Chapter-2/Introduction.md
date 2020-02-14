@@ -17,9 +17,9 @@
      as the tortoise draws his limbs within the shell,
      is to be understood as truly situated in knowledge.
 
-
+Absolute level:
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTY5NDM4ODkyLDM1NDIzNjY3N119
+eyJoaXN0b3J5IjpbLTQ4ODQzNzUzNSwzNTQyMzY2NzddfQ==
 -->
