@@ -17,9 +17,9 @@
      as the tortoise draws his limbs within the shell,
      is to be understood as truly situated in knowledge.
 
-Absolute level:
+Absolute level: Like a tortoise withdraws 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ4ODQzNzUzNSwzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbMTczMjQyNTc2NSwzNTQyMzY2NzddfQ==
 -->
