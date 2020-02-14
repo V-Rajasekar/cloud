@@ -5,10 +5,15 @@
 
 ### This chapter is a summary of the emtire Bhagavad-Gita. Many subjects are explained such as: karma yoga, jnana yoga, sankhya yoga, buddhi yoga and the atma which is the soul and the supersoul.
 
-#### Verse 56
+#### Verse 58
 
-    enter code here
+> Blockquote
+
+    One who is able to withdraw his senses from sense objects,
+     as the tortoise draws his limbs within the shell,
+     is to be understood as truly situated in knowledge.
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzU0MjM2Njc3XX0=
+eyJoaXN0b3J5IjpbMTk2MjY2NTM2NCwzNTQyMzY2NzddfQ==
 -->
