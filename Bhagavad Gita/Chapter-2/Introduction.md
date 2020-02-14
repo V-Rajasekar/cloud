@@ -24,9 +24,10 @@ I have to control my 5 senses (touch, sight, hearing, smell and taste) and the s
  Bring the 5 senses and the mind under the awareness to fully participate.
 (e.g) when your eating  touch it, smell it and chew it fully and enjoy the eating.
 2) ***Experience fully*** Even drinking tea forget about everything and sip it slowly and enjoy the pleasure of tea. spend 5mins
-3) Area of weakness where ever there is a area of weakness you need to withdraw from those senses and practise sadhana
+3) ***Area of weakness*** where ever there is a area of weakness you need to withdraw from those senses and practice sadhana.
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNjA1MzAzOCwyNjg4NzQ3NzIsNzA2Nz
-UyOTQ4LDc2MDkwNTQ3MywzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbLTE3OTk3NDY2MDAsMjY4ODc0NzcyLDcwNj
+c1Mjk0OCw3NjA5MDU0NzMsMzU0MjM2Njc3XX0=
 -->
