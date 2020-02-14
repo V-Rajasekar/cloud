@@ -17,9 +17,8 @@
      as the tortoise draws his limbs within the shell,
      is to be understood as truly his wisdom is established.
 
-Absolute level: Like a tortoise withdraws 
-
+Absolute level: A tortoise has 5 parts 4 legs an,
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk2NzcxMjI5MCwzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbNzYwOTA1NDczLDM1NDIzNjY3N119
 -->
