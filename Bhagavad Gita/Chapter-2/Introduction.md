@@ -15,11 +15,11 @@
 
      One who is able to withdraw his senses from sense objects,
      as the tortoise draws his limbs within the shell,
-     is to be understood as truly situated in knowledge.
+     is to be understood as truly his wisdom is established.
 
 Absolute level: Like a tortoise withdraws 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTczMjQyNTc2NSwzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbLTk2NzcxMjI5MCwzNTQyMzY2NzddfQ==
 -->
