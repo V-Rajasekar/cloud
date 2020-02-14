@@ -23,9 +23,9 @@ I have to control my 5 senses (touch, sight, hearing, smell and taste) and the s
 1) ***First be in the sense enjoyment fully*.**  when ever your doing something what ever senses applicable to the action employ them fully.
 (e.g) when your eating  touch it, smell it and chew it fully and enjoy the eating.
 2) ***Experience fully*** Even drinking tea forget about everything and sip it slowly and enjoy the pleasure of tea. spend 5mins
-3)  Bring the 5 senses and the mind under the awareness to fully pa
+3)  Bring the 5 senses and the mind under the awareness to fully participate.
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA0MjkyNjEyNSwyNjg4NzQ3NzIsNzA2Nz
-UyOTQ4LDc2MDkwNTQ3MywzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbMzcxMDA4NDMwLDI2ODg3NDc3Miw3MDY3NT
+I5NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
 -->
