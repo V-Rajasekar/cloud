@@ -20,9 +20,9 @@
 I have to control my 5 senses (touch, sight, hearing, smell and taste) and the sense center(mind) inorder to awaken the 6 sense. One cannot sense the above senses if his sense center is not focused. You might have realised many times when someone speaks to you when your focused on something(e.g) watching a movie. Eventhough your ears is out there it is not picking what the person is spoke to you it is because the sense center is focused in the movie. 
 
 #### How to master your senses?
-First be in the first sense enjoyment fully. When your watching a mo
+First be in the sense enjoyment fully. When ever you use your sense organs use it fully. (e.g) whnyour watching a mov
 Do sadhana every day (Asanas, Mediatation
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0NjgxMTk0NzgsNzA2NzUyOTQ4LDc2MD
-kwNTQ3MywzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbNDE0Mzg2MjMxLDcwNjc1Mjk0OCw3NjA5MD
+U0NzMsMzU0MjM2Njc3XX0=
 -->
