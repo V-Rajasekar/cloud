@@ -7,7 +7,11 @@
 
 #### Verse 58
 
-> Blockquote
+> 
+> **"yada samharate cayam   kurmo 'nganiva sarvasah**  
+> **indriyanindriyarthebhyas   tasya prajna pratisthita**
+
+
 
     One who is able to withdraw his senses from sense objects,
      as the tortoise draws his limbs within the shell,
@@ -15,5 +19,5 @@
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk2MjY2NTM2NCwzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbMjU1MDA2MzYsMzU0MjM2Njc3XX0=
 -->
