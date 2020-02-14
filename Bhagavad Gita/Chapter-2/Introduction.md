@@ -4,6 +4,11 @@
 ### In chapter two Arjuna accepts the position as a disciple of Lord Krishna after surrendering to Krishna he requests the Lord to instruct him in how to dispel his lamentation and grief. 
 
 ### This chapter is a summary of the emtire Bhagavad-Gita. Many subjects are explained such as: karma yoga, jnana yoga, sankhya yoga, buddhi yoga and the atma which is the soul and the supersoul.
+
+#### Verse 56
+
+    enter code here
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzU3NjA5NjZdfQ==
+eyJoaXN0b3J5IjpbMzU0MjM2Njc3XX0=
 -->
