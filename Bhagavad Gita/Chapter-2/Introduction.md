@@ -5,6 +5,8 @@
 
 ### This chapter is a summary of the emtire Bhagavad-Gita. Many subjects are explained such as: karma yoga, jnana yoga, sankhya yoga, buddhi yoga and the atma which is the soul and the supersoul.
 
+Sthita Prajna
+
 #### Verse 58
 
 > 
@@ -28,6 +30,7 @@ I have to control my 5 senses (touch, sight, hearing, smell and taste) and the s
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3OTk3NDY2MDAsMjY4ODc0NzcyLDcwNj
-c1Mjk0OCw3NjA5MDU0NzMsMzU0MjM2Njc3XX0=
+eyJoaXN0b3J5IjpbLTEyODE0NDU2MTEsLTE3OTk3NDY2MDAsMj
+Y4ODc0NzcyLDcwNjc1Mjk0OCw3NjA5MDU0NzMsMzU0MjM2Njc3
+XX0=
 -->
