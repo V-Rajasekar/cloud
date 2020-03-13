@@ -32,13 +32,14 @@ rasa-varjaṁ raso ’pyasya paraṁ dṛiṣhṭvā nivartate***
 
 vishayaga means information. Any information which is not processed and not used. Its useless. 
 A person who has goals he only like to gather those information he will discard other informations. Successful people only spend 10% to get to know what is happening around him. 
-They set a time for it outside of 
+They set a time for it outside of it he won't spend time on those things.  
+How to put filter? Always create
 
  
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTY3OTY4OTc1LC0yMDU0Mjc4MzE5LC0xNz
-k5NzQ2NjAwLDI2ODg3NDc3Miw3MDY3NTI5NDgsNzYwOTA1NDcz
-LDM1NDIzNjY3N119
+eyJoaXN0b3J5IjpbLTQzMjE4NDkyOCwtMjA1NDI3ODMxOSwtMT
+c5OTc0NjYwMCwyNjg4NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3
+MywzNTQyMzY2NzddfQ==
 -->
