@@ -50,13 +50,14 @@ rasa-varjaṁ raso ’pyasya paraṁ dṛiṣhṭvā nivartate***
 
 The objects of sense turn away from an abstinent person but not the relish. The relish also disappears having seen the highest.
 
-The nature will support you, if your intensity is strong on achieving a goal. The intensity of nature turning towards you  
+The nature will support you, if your intensity is strong on achieving a goal. 
+The intensity of nature turning towards you  is propotional to your sincerity
 
  
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg1OTMyNTQ2MCwtODg1NTkwMzQ3LC0yMD
+eyJoaXN0b3J5IjpbLTEyMjM2OTY2NywtODg1NTkwMzQ3LC0yMD
 U0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3NDc3Miw3MDY3NTI5
 NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
 -->
