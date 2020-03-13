@@ -35,13 +35,17 @@ A person who has goals he only like to gather those information he will discard 
 They set a time for it outside of it he won't spend time on those things.  
 On what bases should I create the filter?
   create filters inline to the goal 
-  On what bases should I filter?
+On what bases should I filter?
+There are three types of informations
+1) Irrelevant information (usele which are always useless.
+2) Negative causing 
+  
 
  
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU2NzQxMjQ0MCwtMjA1NDI3ODMxOSwtMT
-c5OTc0NjYwMCwyNjg4NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3
-MywzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbLTE2NzI5NzE1MTEsLTIwNTQyNzgzMTksLT
+E3OTk3NDY2MDAsMjY4ODc0NzcyLDcwNjc1Mjk0OCw3NjA5MDU0
+NzMsMzU0MjM2Njc3XX0=
 -->
