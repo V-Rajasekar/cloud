@@ -39,14 +39,15 @@ On what bases should I filter?
 There are three types of informations
 1) Irrelevant information (useless info) they are rajashikh like amiruth but later turn in to position
 2) Negative causing information (gossips, willingly hearing neagtive thins) 
-3) Positiv
+3) Positive causing information (Initially it would be like a poision, but later it will give happiness)
+
   
 
  
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwNTU5NzI2ODQsLTIwNTQyNzgzMTksLT
-E3OTk3NDY2MDAsMjY4ODc0NzcyLDcwNjc1Mjk0OCw3NjA5MDU0
-NzMsMzU0MjM2Njc3XX0=
+eyJoaXN0b3J5IjpbLTg4NTU5MDM0NywtMjA1NDI3ODMxOSwtMT
+c5OTc0NjYwMCwyNjg4NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3
+MywzNTQyMzY2NzddfQ==
 -->
