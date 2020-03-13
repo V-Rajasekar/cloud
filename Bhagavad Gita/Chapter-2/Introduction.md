@@ -42,7 +42,8 @@ There are three types of informations
 3) Positive causing information (Initially it would be like a poision, but later it will give happiness)
 
 **Sadhana**: Filter irrelvant and negative information.  see what kind of inout are you taking willingly ?
-When you contact sense org
+When you contact sense organ without wisdom it will lead to indulgence(It will take all energy). when you withdraw without wisdom, and sadhana it will lead to suppression.
+
 
   
 
@@ -50,7 +51,7 @@ When you contact sense org
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI3NjY4NDgwMSwtODg1NTkwMzQ3LC0yMD
+eyJoaXN0b3J5IjpbLTg3OTU5MDM3NywtODg1NTkwMzQ3LC0yMD
 U0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3NDc3Miw3MDY3NTI5
 NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
 -->
