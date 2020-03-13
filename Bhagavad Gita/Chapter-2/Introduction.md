@@ -27,12 +27,14 @@ I have to control my 5 senses (touch, sight, hearing, smell and taste) and the s
 3) ***Area of weakness*** where ever there is a area of weakness you need to withdraw from those senses and practice sadhana.
 
 #### Verse 59
->
->
+>***viṣhayā vinivartante nirāhārasya dehinaḥ  
+rasa-varjaṁ raso ’pyasya paraṁ dṛiṣhṭvā nivartate***
+
+ 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjQwNjc4MTI4LC0yMDU0Mjc4MzE5LC0xNz
-k5NzQ2NjAwLDI2ODg3NDc3Miw3MDY3NTI5NDgsNzYwOTA1NDcz
-LDM1NDIzNjY3N119
+eyJoaXN0b3J5IjpbMTExNjU3NDAyMSwtMjA1NDI3ODMxOSwtMT
+c5OTc0NjYwMCwyNjg4NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3
+MywzNTQyMzY2NzddfQ==
 -->
