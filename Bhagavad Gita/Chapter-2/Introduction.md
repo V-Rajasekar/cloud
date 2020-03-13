@@ -26,9 +26,13 @@ I have to control my 5 senses (touch, sight, hearing, smell and taste) and the s
 2) ***Experience fully*** Even drinking tea forget about everything and sip it slowly and enjoy the pleasure of tea. spend 5mins
 3) ***Area of weakness*** where ever there is a area of weakness you need to withdraw from those senses and practice sadhana.
 
+#### Verse 59
+>
+>
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwNTQyNzgzMTksLTE3OTk3NDY2MDAsMj
-Y4ODc0NzcyLDcwNjc1Mjk0OCw3NjA5MDU0NzMsMzU0MjM2Njc3
-XX0=
+eyJoaXN0b3J5IjpbNjQwNjc4MTI4LC0yMDU0Mjc4MzE5LC0xNz
+k5NzQ2NjAwLDI2ODg3NDc3Miw3MDY3NTI5NDgsNzYwOTA1NDcz
+LDM1NDIzNjY3N119
 -->
