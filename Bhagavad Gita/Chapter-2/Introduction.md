@@ -30,11 +30,13 @@ I have to control my 5 senses (touch, sight, hearing, smell and taste) and the s
 >***viṣhayā vinivartante nirāhārasya dehinaḥ  
 rasa-varjaṁ raso ’pyasya paraṁ dṛiṣhṭvā nivartate***
 
+vishayaga means information. Any information which is 
+
  
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTExNjU3NDAyMSwtMjA1NDI3ODMxOSwtMT
-c5OTc0NjYwMCwyNjg4NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3
-MywzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbLTE4MDU2NTQwMDMsLTIwNTQyNzgzMTksLT
+E3OTk3NDY2MDAsMjY4ODc0NzcyLDcwNjc1Mjk0OCw3NjA5MDU0
+NzMsMzU0MjM2Njc3XX0=
 -->
