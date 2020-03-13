@@ -30,13 +30,15 @@ I have to control my 5 senses (touch, sight, hearing, smell and taste) and the s
 >***viṣhayā vinivartante nirāhārasya dehinaḥ  
 rasa-varjaṁ raso ’pyasya paraṁ dṛiṣhṭvā nivartate***
 
-vishayaga means information. Any information which is 
+vishayaga means information. Any information which is not processed and not used. Its useless. 
+A person who has goals he only like to gather those information he will discard other informations. Successful people only spend 10% to get to know what is happening around him. 
+They set a time for it outside of 
 
  
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MDU2NTQwMDMsLTIwNTQyNzgzMTksLT
-E3OTk3NDY2MDAsMjY4ODc0NzcyLDcwNjc1Mjk0OCw3NjA5MDU0
-NzMsMzU0MjM2Njc3XX0=
+eyJoaXN0b3J5IjpbNTY3OTY4OTc1LC0yMDU0Mjc4MzE5LC0xNz
+k5NzQ2NjAwLDI2ODg3NDc3Miw3MDY3NTI5NDgsNzYwOTA1NDcz
+LDM1NDIzNjY3N119
 -->
