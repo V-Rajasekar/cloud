@@ -26,10 +26,6 @@ I have to control my 5 senses (touch, sight, hearing, smell and taste) and the s
 2) ***Experience fully*** Even drinking tea forget about everything and sip it slowly and enjoy the pleasure of tea. spend 5mins
 3) ***Area of weakness*** where ever there is a area of weakness you need to withdraw from those senses and practice sadhana.
 
-#### Verse 59
->***viṣhayā vinivartante nirāhārasya dehinaḥ  
-rasa-varjaṁ raso ’pyasya paraṁ dṛiṣhṭvā nivartate***
-
 vishayaga means information. Any information which is not processed and not used. Its useless. 
 A person who has goals he only like to gather those information he will discard other informations. Successful people only spend 10% to get to know what is happening around him. 
 They set a time for it outside of it he won't spend time on those things.  
@@ -48,16 +44,17 @@ when you withdraw without wisdom, and sadhana it will lead to suppression.
 How to know the symptoms of indulgence? It will not allow you to focus. You can't even able to stick to a converstation for few minutes.
 How to know the symptoms of suppression? Leads to anger, you will start to judge others.
 
- 
+#### Verse 59
+>***viṣhayā vinivartante nirāhārasya dehinaḥ  
+rasa-varjaṁ raso ’pyasya paraṁ dṛiṣhṭvā nivartate***
 
-
-  
+The objects of sense turn away from an abstinent person but not the relish. The relish also  
 
  
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEwMzU5MDEzMiwtODg1NTkwMzQ3LC0yMD
+eyJoaXN0b3J5IjpbLTEzMjk1NDQ0MiwtODg1NTkwMzQ3LC0yMD
 U0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3NDc3Miw3MDY3NTI5
 NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
 -->
