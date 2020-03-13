@@ -45,7 +45,10 @@ There are three types of informations
 When you contact sense organ without wisdom it will lead to indulgence(It will take all energy).
 when you withdraw without wisdom, and sadhana it will lead to suppression.
 
-How to know the symptoms of indulgence ? It will not allow you to focus. You can't even able to st
+How to know the symptoms of indulgence? It will not allow you to focus. You can't even able to stick to a converstation for few minutes.
+How to know the symptoms of suppression? Leads to anger, you will start to judge others.
+
+ 
 
 
   
@@ -54,7 +57,7 @@ How to know the symptoms of indulgence ? It will not allow you to focus. You can
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTMyMjYzMDY3NywtODg1NTkwMzQ3LC0yMD
+eyJoaXN0b3J5IjpbMTEwMzU5MDEzMiwtODg1NTkwMzQ3LC0yMD
 U0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3NDc3Miw3MDY3NTI5
 NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
 -->
