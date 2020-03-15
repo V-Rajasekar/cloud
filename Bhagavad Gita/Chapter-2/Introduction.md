@@ -50,7 +50,7 @@ rasa-varjaṁ raso ’pyasya paraṁ dṛiṣhṭvā nivartate***
 
 The objects of sense turn away from an abstinent person but not the relish. The relish also disappears having seen the highest.
 
-The one whos appplying the demad and supply all the inputs of the life(1. where ever the input is not going to cause negative he allows it to mingle and enjoy. 2) Where ever a particular input is completely 
+The one whos appplying the demad and supply all the inputs of the life(1. where ever the input is not going to cause negative he allows it to mingle and enjoy. 2) Where ever a particular input is completely is very very dangerous for him where he will completely loose control. He will 
 
 **The nature will support you, if your intensity is strong on achieving a goal. 
 The intensity of nature turning towards you  is propotional to your sincerity.**
@@ -83,7 +83,7 @@ _**dehinaḥ**_ Your not the body, your occupied the body.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzUwNTE5ODU0LC0yMDU3NTgxMzU5LC01OD
+eyJoaXN0b3J5IjpbNTY2NzE3NjI1LC0yMDU3NTgxMzU5LC01OD
 AwMzE0OSwtMjExODc1NzkxNSwtODg1NTkwMzQ3LC0yMDU0Mjc4
 MzE5LC0xNzk5NzQ2NjAwLDI2ODg3NDc3Miw3MDY3NTI5NDgsNz
 YwOTA1NDczLDM1NDIzNjY3N119
