@@ -59,6 +59,8 @@ he can control the senses and body. Right now you want to control your sense but
 
 what ever the goal they have kept they will determine what are the inputs in achieving the goal. (e.g) A model to maintain a good physical body, he will not eat food such as icecreams _**nirāhārasya**_  . A person without goal only will lead a indulgence life. 
 
+Along without 
+
 
 
 **The nature will support you, if your intensity is strong on achieving a goal. 
@@ -90,8 +92,8 @@ _**dehinaḥ**_ one who occupied the body
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODU2MDIzNDI0LC0yMTA2MTE3NzcwLC0yMD
-U3NTgxMzU5LC01ODAwMzE0OSwtMjExODc1NzkxNSwtODg1NTkw
-MzQ3LC0yMDU0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3NDc3Mi
-w3MDY3NTI5NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
+eyJoaXN0b3J5IjpbLTE1NDg5NzcyMTcsLTIxMDYxMTc3NzAsLT
+IwNTc1ODEzNTksLTU4MDAzMTQ5LC0yMTE4NzU3OTE1LC04ODU1
+OTAzNDcsLTIwNTQyNzgzMTksLTE3OTk3NDY2MDAsMjY4ODc0Nz
+cyLDcwNjc1Mjk0OCw3NjA5MDU0NzMsMzU0MjM2Njc3XX0=
 -->
