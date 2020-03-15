@@ -79,16 +79,14 @@ Undertand the principle you are able to say NO when ever you loose control, by d
 A successful person is one who keeps on getting up. But a person failed is not willing to get up. Learn and understand what is the breaking point as you do sadhana you will understand your breaking point.  
 
 _**nirāhārasya**_ not having food
-_**dehinaḥ**_ Your not the body, your occupied the body.  
-
-
+_**dehinaḥ**_ one who occupied the body
  
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDYyOTg1MzYzLC0yMDU3NTgxMzU5LC01OD
+eyJoaXN0b3J5IjpbOTIyMjY0ODU3LC0yMDU3NTgxMzU5LC01OD
 AwMzE0OSwtMjExODc1NzkxNSwtODg1NTkwMzQ3LC0yMDU0Mjc4
 MzE5LC0xNzk5NzQ2NjAwLDI2ODg3NDc3Miw3MDY3NTI5NDgsNz
 YwOTA1NDczLDM1NDIzNjY3N119
