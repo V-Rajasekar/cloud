@@ -57,7 +57,7 @@ The one whos appplying the law of demad and supply all the inputs of the life
 
 he can control the senses and body. Right now you want control your sense but without this practise its not posible. 
 
-what ever the goal they have kept they will determine what are the inputs in achieving the goal. (e.g) A model to maintain a good physical body, he will not eat food such as icecreams. A person without goal only will lead a indulgence life. 
+what ever the goal they have kept they will determine what are the inputs in achieving the goal. (e.g) A model to maintain a good physical body, he will not eat food such as icecreams _**nirāhārasya**_  . A person without goal only will lead a indulgence life. 
 
 
 
@@ -90,8 +90,8 @@ _**dehinaḥ**_ one who occupied the body
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg0MjM0OTc5NiwtMjEwNjExNzc3MCwtMj
-A1NzU4MTM1OSwtNTgwMDMxNDksLTIxMTg3NTc5MTUsLTg4NTU5
-MDM0NywtMjA1NDI3ODMxOSwtMTc5OTc0NjYwMCwyNjg4NzQ3Nz
-IsNzA2NzUyOTQ4LDc2MDkwNTQ3MywzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbMTg5MTU0NjgxLC0yMTA2MTE3NzcwLC0yMD
+U3NTgxMzU5LC01ODAwMzE0OSwtMjExODc1NzkxNSwtODg1NTkw
+MzQ3LC0yMDU0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3NDc3Mi
+w3MDY3NTI5NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
 -->
