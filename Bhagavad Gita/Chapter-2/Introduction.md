@@ -58,12 +58,14 @@ The curicumstance or environment is not creating anything(reaction) within you. 
 The external circumstance is just bringing out what is within you, it is not the cause, but its only a trigger.
 
 That person is irretating me. 
+That person is behaving like that. I'm reacting.
+**Sadhana:**  
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEwNTAyNzYyNSwtMjExODc1NzkxNSwtOD
-g1NTkwMzQ3LC0yMDU0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3
-NDc3Miw3MDY3NTI5NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
+eyJoaXN0b3J5IjpbMzU1MzIwMTkzLC0yMTE4NzU3OTE1LC04OD
+U1OTAzNDcsLTIwNTQyNzgzMTksLTE3OTk3NDY2MDAsMjY4ODc0
+NzcyLDcwNjc1Mjk0OCw3NjA5MDU0NzMsMzU0MjM2Njc3XX0=
 -->
