@@ -5,6 +5,7 @@
 > 2) when you work in selfish way it will lower your consciousness, but when you work for higher cause, when you day seva it raises consciousness.
 > 3) Remove/Filter irrelevant or negative informations and also observe what are the kind of input am I taking it willingly.
 >4) When ever your effected by anything immedetiatley split the experience in to two. One is the triggering factor outside and other is the reaction with in you.
+>I'm am unable to express my thoughts in a discussion or meeting. Instead say I choose to not to express my thoughts in a d 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYyMTg0NDk5NiwtMTA2NDczNjMxOF19
+eyJoaXN0b3J5IjpbMTQxMDE5NTE1LC0xMDY0NzM2MzE4XX0=
 -->
