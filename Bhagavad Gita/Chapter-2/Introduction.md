@@ -64,13 +64,13 @@ That person is behaving like that. I'm reacting.
 
 The whole idea is to increase the awareness.
 
+Certain type of input right from the word go you loose control. There you have to be very careful. In many other i
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5NTIwNDIyMjUsLTIxMTg3NTc5MTUsLT
-g4NTU5MDM0NywtMjA1NDI3ODMxOSwtMTc5OTc0NjYwMCwyNjg4
-NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3MywzNTQyMzY2NzddfQ
-==
+eyJoaXN0b3J5IjpbNDIxMzA3MywtMjExODc1NzkxNSwtODg1NT
+kwMzQ3LC0yMDU0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3NDc3
+Miw3MDY3NTI5NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
 -->
