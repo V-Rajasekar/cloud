@@ -55,7 +55,7 @@ The one whos appplying the law of demad and supply all the inputs of the life
 2.  Where ever a particular input is completely is very very dangerous for him where he will completely loose control.there he will put a stop and let me build inerstrength 
 3.  He also know the breakingpoint up to what point he is positive and after which point it goes negative.
 
-If he 
+he can control the senses and body. Right now you want control your sense but without this practise it won't obey your 
 
 
 
@@ -88,8 +88,8 @@ _**dehinaḥ**_ one who occupied the body
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk2MTk5NDM2MCwtMjA1NzU4MTM1OSwtNT
-gwMDMxNDksLTIxMTg3NTc5MTUsLTg4NTU5MDM0NywtMjA1NDI3
-ODMxOSwtMTc5OTc0NjYwMCwyNjg4NzQ3NzIsNzA2NzUyOTQ4LD
-c2MDkwNTQ3MywzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbLTIxMDYxMTc3NzAsLTIwNTc1ODEzNTksLT
+U4MDAzMTQ5LC0yMTE4NzU3OTE1LC04ODU1OTAzNDcsLTIwNTQy
+NzgzMTksLTE3OTk3NDY2MDAsMjY4ODc0NzcyLDcwNjc1Mjk0OC
+w3NjA5MDU0NzMsMzU0MjM2Njc3XX0=
 -->
