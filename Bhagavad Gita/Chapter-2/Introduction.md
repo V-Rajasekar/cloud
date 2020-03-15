@@ -66,13 +66,14 @@ The whole idea is to increase the awareness.
 
 Certain type of input right from the word go you loose control. There you have to be very careful. In many other instance up to a point you will allow yourself, but after that you will shutdown. 
 
-No idea of which object s
+You should follow the absenance (withdraw from sense) like a tortoise withdrawing its limb.  
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYwOTk2NjI5OCwtMjExODc1NzkxNSwtOD
-g1NTkwMzQ3LC0yMDU0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3
-NDc3Miw3MDY3NTI5NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
+eyJoaXN0b3J5IjpbLTEwMjExMzY2ODYsLTIxMTg3NTc5MTUsLT
+g4NTU5MDM0NywtMjA1NDI3ODMxOSwtMTc5OTc0NjYwMCwyNjg4
+NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3MywzNTQyMzY2NzddfQ
+==
 -->
