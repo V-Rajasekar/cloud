@@ -57,6 +57,8 @@ The one whos appplying the law of demad and supply all the inputs of the life
 
 he can control the senses and body. Right now you want control your sense but without this practise it won't obey your 
 
+A person who has a goal will not indulge
+
 
 
 **The nature will support you, if your intensity is strong on achieving a goal. 
@@ -88,8 +90,8 @@ _**dehinaḥ**_ one who occupied the body
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMDYxMTc3NzAsLTIwNTc1ODEzNTksLT
-U4MDAzMTQ5LC0yMTE4NzU3OTE1LC04ODU1OTAzNDcsLTIwNTQy
-NzgzMTksLTE3OTk3NDY2MDAsMjY4ODc0NzcyLDcwNjc1Mjk0OC
-w3NjA5MDU0NzMsMzU0MjM2Njc3XX0=
+eyJoaXN0b3J5IjpbMTQ4NjEwNTkzMywtMjEwNjExNzc3MCwtMj
+A1NzU4MTM1OSwtNTgwMDMxNDksLTIxMTg3NTc5MTUsLTg4NTU5
+MDM0NywtMjA1NDI3ODMxOSwtMTc5OTc0NjYwMCwyNjg4NzQ3Nz
+IsNzA2NzUyOTQ4LDc2MDkwNTQ3MywzNTQyMzY2NzddfQ==
 -->
