@@ -55,11 +55,14 @@ The intensity of nature turning towards you  is propotional to your sincerity.**
 
 The curicumstance or environment is not creating anything(reaction) within you. If you want to be strong you have to get out of that third process. 
 
+The external
+
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ3MjM5NjE5OSwtMjExODc1NzkxNSwtOD
-g1NTkwMzQ3LC0yMDU0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3
-NDc3Miw3MDY3NTI5NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
+eyJoaXN0b3J5IjpbLTE2NDkxNjU4OTMsLTIxMTg3NTc5MTUsLT
+g4NTU5MDM0NywtMjA1NDI3ODMxOSwtMTc5OTc0NjYwMCwyNjg4
+NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3MywzNTQyMzY2NzddfQ
+==
 -->
