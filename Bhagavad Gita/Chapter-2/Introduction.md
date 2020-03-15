@@ -55,9 +55,9 @@ The one whos appplying the law of demad and supply all the inputs of the life
 2.  Where ever a particular input is completely is very very dangerous for him where he will completely loose control.there he will put a stop and let me build inerstrength 
 3.  He also know the breakingpoint up to what point he is positive and after which point it goes negative.
 
-he can control the senses and body. Right now you want control your sense but without this practise it won't obey your 
+he can control the senses and body. Right now you want control your sense but without this practise its not posible. 
 
-A person who has a goal will not indulge
+what ever the goal they set now they will determine what are the inputs in achiev
 
 
 
@@ -90,8 +90,8 @@ _**dehinaḥ**_ one who occupied the body
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQ4NjEwNTkzMywtMjEwNjExNzc3MCwtMj
-A1NzU4MTM1OSwtNTgwMDMxNDksLTIxMTg3NTc5MTUsLTg4NTU5
-MDM0NywtMjA1NDI3ODMxOSwtMTc5OTc0NjYwMCwyNjg4NzQ3Nz
-IsNzA2NzUyOTQ4LDc2MDkwNTQ3MywzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbMjQyODE2MDI5LC0yMTA2MTE3NzcwLC0yMD
+U3NTgxMzU5LC01ODAwMzE0OSwtMjExODc1NzkxNSwtODg1NTkw
+MzQ3LC0yMDU0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3NDc3Mi
+w3MDY3NTI5NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
 -->
