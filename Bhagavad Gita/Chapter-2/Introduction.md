@@ -65,8 +65,10 @@ That person is behaving like that. I'm reacting.
 The whole idea is to increase the awareness.
 
 Certain type of input right from the word go you loose control. There you have to be very careful. In many other instance up to a point you will allow yourself, but after that you will shutdown. 
-You should follow the absenance (withdraw from sense) like a tortoise withdrawing its limb.  How do I know the distance or point ? Its a lifetime tapase. A master do a fasting in one day, another day do a feast.
-Don't go by his action go by his principle.
+You should follow the absenance (withdraw from sense) like a tortoise withdrawing its limb.  
+How do I know the distance or point ? Its a lifetime tapase. A master do a fasting in one day, another day do a feast. Don't go by his action go by his principle.
+
+Undertand the principle you are able to say NO when ever you loose control, by doing daily 
 
 
  
@@ -75,7 +77,8 @@ Don't go by his action go by his principle.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU4MDAzMTQ5LC0yMTE4NzU3OTE1LC04OD
-U1OTAzNDcsLTIwNTQyNzgzMTksLTE3OTk3NDY2MDAsMjY4ODc0
-NzcyLDcwNjc1Mjk0OCw3NjA5MDU0NzMsMzU0MjM2Njc3XX0=
+eyJoaXN0b3J5IjpbLTEwNTk2NDczMiwtNTgwMDMxNDksLTIxMT
+g3NTc5MTUsLTg4NTU5MDM0NywtMjA1NDI3ODMxOSwtMTc5OTc0
+NjYwMCwyNjg4NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3MywzNT
+QyMzY2NzddfQ==
 -->
