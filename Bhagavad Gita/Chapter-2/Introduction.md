@@ -71,7 +71,7 @@ How do I know the distance or point ? Its a lifetime tapase. A master do a fasti
 Undertand the principle you are able to say NO when ever you loose control, by doing daily Sadhana. 
 A successful person is one who keeps on getting up. But a person failed is not willing to get up. Learn and understand what is the breaking point as you do sadhana you will understand your breaking point.  
 
-
+_**dehinaḥ**_ Your not the 
 
 
  
@@ -80,7 +80,7 @@ A successful person is one who keeps on getting up. But a person failed is not w
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA2ODMwMzA1MywtNTgwMDMxNDksLTIxMT
+eyJoaXN0b3J5IjpbLTQxMzkyNDI5NCwtNTgwMDMxNDksLTIxMT
 g3NTc5MTUsLTg4NTU5MDM0NywtMjA1NDI3ODMxOSwtMTc5OTc0
 NjYwMCwyNjg4NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3MywzNT
 QyMzY2NzddfQ==
