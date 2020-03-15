@@ -68,7 +68,8 @@ Certain type of input right from the word go you loose control. There you have t
 You should follow the absenance (withdraw from sense) like a tortoise withdrawing its limb.  
 How do I know the distance or point ? Its a lifetime tapase. A master do a fasting in one day, another day do a feast. Don't go by his action go by his principle.
 
-Undertand the principle you are able to say NO when ever you loose control, by doing daily 
+Undertand the principle you are able to say NO when ever you loose control, by doing daily Sadhana. 
+A successful person is one who is keep on 
 
 
  
@@ -77,7 +78,7 @@ Undertand the principle you are able to say NO when ever you loose control, by d
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwNTk2NDczMiwtNTgwMDMxNDksLTIxMT
+eyJoaXN0b3J5IjpbMTgyNTk0OTk4NCwtNTgwMDMxNDksLTIxMT
 g3NTc5MTUsLTg4NTU5MDM0NywtMjA1NDI3ODMxOSwtMTc5OTc0
 NjYwMCwyNjg4NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3MywzNT
 QyMzY2NzddfQ==
