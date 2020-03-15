@@ -50,6 +50,8 @@ rasa-varjaṁ raso ’pyasya paraṁ dṛiṣhṭvā nivartate***
 
 The objects of sense turn away from an abstinent person but not the relish. The relish also disappears having seen the highest.
 
+The one who practise
+
 **The nature will support you, if your intensity is strong on achieving a goal. 
 The intensity of nature turning towards you  is propotional to your sincerity.**
 
@@ -81,8 +83,8 @@ _**dehinaḥ**_ Your not the body, your occupied the body.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwNTc1ODEzNTksLTU4MDAzMTQ5LC0yMT
-E4NzU3OTE1LC04ODU1OTAzNDcsLTIwNTQyNzgzMTksLTE3OTk3
-NDY2MDAsMjY4ODc0NzcyLDcwNjc1Mjk0OCw3NjA5MDU0NzMsMz
-U0MjM2Njc3XX0=
+eyJoaXN0b3J5IjpbLTE2MDgzMTU2MSwtMjA1NzU4MTM1OSwtNT
+gwMDMxNDksLTIxMTg3NTc5MTUsLTg4NTU5MDM0NywtMjA1NDI3
+ODMxOSwtMTc5OTc0NjYwMCwyNjg4NzQ3NzIsNzA2NzUyOTQ4LD
+c2MDkwNTQ3MywzNTQyMzY2NzddfQ==
 -->
