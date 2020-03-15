@@ -60,14 +60,15 @@ The external circumstance is just bringing out what is within you, it is not the
 That person is irritating me. 
 That person is behaving like that. I'm reacting.
 
-**Sadhana:**  When ever your effected by anything immedetiatley split the experience in to two. One is the triggering 
+**Sadhana:**  "When ever your effected by anything immedetiatley split the experience in to two. One is the triggering factor outside and other is the reaction with in you. "
+
+The whole idea is to increase the awareness.
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MDcxMTI4NjgsLTIxMTg3NTc5MTUsLT
-g4NTU5MDM0NywtMjA1NDI3ODMxOSwtMTc5OTc0NjYwMCwyNjg4
-NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3MywzNTQyMzY2NzddfQ
-==
+eyJoaXN0b3J5IjpbMTIwNjAwMTIyOSwtMjExODc1NzkxNSwtOD
+g1NTkwMzQ3LC0yMDU0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3
+NDc3Miw3MDY3NTI5NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
 -->
