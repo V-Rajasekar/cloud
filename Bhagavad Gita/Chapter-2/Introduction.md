@@ -53,13 +53,13 @@ The objects of sense turn away from an abstinent person but not the relish. The 
 **The nature will support you, if your intensity is strong on achieving a goal. 
 The intensity of nature turning towards you  is propotional to your sincerity.**
 
-The curimstance or environment is not creating anything(reaction) within you. If you want to be strong you have to get out of that third process. 
+The curicumstance or environment is not creating anything(reaction) within you. If you want to be strong you have to get out of that third process. 
 
-When
+
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTkzOTkzMDQ0NywtMjExODc1NzkxNSwtOD
+eyJoaXN0b3J5IjpbLTQ3MjM5NjE5OSwtMjExODc1NzkxNSwtOD
 g1NTkwMzQ3LC0yMDU0Mjc4MzE5LC0xNzk5NzQ2NjAwLDI2ODg3
 NDc3Miw3MDY3NTI5NDgsNzYwOTA1NDczLDM1NDIzNjY3N119
 -->
