@@ -69,7 +69,7 @@ You should follow the absenance (withdraw from sense) like a tortoise withdrawin
 How do I know the distance or point ? Its a lifetime tapase. A master do a fasting in one day, another day do a feast. Don't go by his action go by his principle.
 
 Undertand the principle you are able to say NO when ever you loose control, by doing daily Sadhana. 
-A successful person is one who is keep on 
+A successful person is one who keeps on getting up. But a person failed is not willing to get up. Learn and understand what is the breaking point as you do sadhana you will understand your breaking point.
 
 
  
@@ -78,8 +78,8 @@ A successful person is one who is keep on
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTgyNTk0OTk4NCwtNTgwMDMxNDksLTIxMT
-g3NTc5MTUsLTg4NTU5MDM0NywtMjA1NDI3ODMxOSwtMTc5OTc0
-NjYwMCwyNjg4NzQ3NzIsNzA2NzUyOTQ4LDc2MDkwNTQ3MywzNT
-QyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbOTE1NTAxMjg5LC01ODAwMzE0OSwtMjExOD
+c1NzkxNSwtODg1NTkwMzQ3LC0yMDU0Mjc4MzE5LC0xNzk5NzQ2
+NjAwLDI2ODg3NDc3Miw3MDY3NTI5NDgsNzYwOTA1NDczLDM1ND
+IzNjY3N119
 -->
