@@ -48,6 +48,10 @@ How to know the symptoms of suppression? Leads to anger, you will start to judge
 >***viṣhayā vinivartante nirāhārasya dehinaḥ  
 rasa-varjaṁ raso ’pyasya paraṁ dṛiṣhṭvā nivartate***
 
+***viṣhayā***  Information
+_**nirāhārasya**_ not having food
+_**dehinaḥ**_ one who occupied the body
+
 The objects of sense turn away from an abstinent person but not the relish. The relish also disappears having seen the highest.
 
 The one whos appplying the law of demad and supply all the inputs of the life
@@ -58,10 +62,6 @@ The one whos appplying the law of demad and supply all the inputs of the life
 he can control the senses and body. Right now you want to control your sense but without this practise its not posible. 
 
 what ever the goal they have kept they will determine what are the inputs in achieving the goal. (e.g) A model to maintain a good physical body, he will not eat food such as icecreams _**nirāhārasya**_  . A person without goal only will lead a indulgence life. 
-
-Along without 
-
-
 
 **The nature will support you, if your intensity is strong on achieving a goal. 
 The intensity of nature turning towards you  is propotional to your sincerity.**
@@ -84,16 +84,15 @@ How do I know the distance or point ? Its a lifetime tapase. A master do a fasti
 Undertand the principle you are able to say NO when ever you loose control, by doing daily Sadhana. 
 A successful person is one who keeps on getting up. But a person failed is not willing to get up. Learn and understand what is the breaking point as you do sadhana you will understand your breaking point.  
 
-_**nirāhārasya**_ not having food
-_**dehinaḥ**_ one who occupied the body
  
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1NDg5NzcyMTcsLTIxMDYxMTc3NzAsLT
-IwNTc1ODEzNTksLTU4MDAzMTQ5LC0yMTE4NzU3OTE1LC04ODU1
-OTAzNDcsLTIwNTQyNzgzMTksLTE3OTk3NDY2MDAsMjY4ODc0Nz
-cyLDcwNjc1Mjk0OCw3NjA5MDU0NzMsMzU0MjM2Njc3XX0=
+eyJoaXN0b3J5IjpbLTEwMTcyOTMzOTksLTE1NDg5NzcyMTcsLT
+IxMDYxMTc3NzAsLTIwNTc1ODEzNTksLTU4MDAzMTQ5LC0yMTE4
+NzU3OTE1LC04ODU1OTAzNDcsLTIwNTQyNzgzMTksLTE3OTk3ND
+Y2MDAsMjY4ODc0NzcyLDcwNjc1Mjk0OCw3NjA5MDU0NzMsMzU0
+MjM2Njc3XX0=
 -->
