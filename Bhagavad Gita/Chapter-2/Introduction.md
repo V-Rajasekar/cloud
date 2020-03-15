@@ -71,7 +71,8 @@ How do I know the distance or point ? Its a lifetime tapase. A master do a fasti
 Undertand the principle you are able to say NO when ever you loose control, by doing daily Sadhana. 
 A successful person is one who keeps on getting up. But a person failed is not willing to get up. Learn and understand what is the breaking point as you do sadhana you will understand your breaking point.  
 
-_**dehinaḥ**_ Your not the body, your occupied the body. I 
+_**nirāhārasya**_ not having food
+_**dehinaḥ**_ Your not the body, your occupied the body.  
 
 
  
@@ -80,8 +81,8 @@ _**dehinaḥ**_ Your not the body, your occupied the body. I
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTkyNTUzMDg3LC01ODAwMzE0OSwtMjExOD
-c1NzkxNSwtODg1NTkwMzQ3LC0yMDU0Mjc4MzE5LC0xNzk5NzQ2
-NjAwLDI2ODg3NDc3Miw3MDY3NTI5NDgsNzYwOTA1NDczLDM1ND
-IzNjY3N119
+eyJoaXN0b3J5IjpbLTIwNTc1ODEzNTksLTU4MDAzMTQ5LC0yMT
+E4NzU3OTE1LC04ODU1OTAzNDcsLTIwNTQyNzgzMTksLTE3OTk3
+NDY2MDAsMjY4ODc0NzcyLDcwNjc1Mjk0OCw3NjA5MDU0NzMsMz
+U0MjM2Njc3XX0=
 -->
