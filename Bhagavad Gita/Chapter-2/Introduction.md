@@ -53,11 +53,11 @@ The objects of sense turn away from an abstinent person but not the relish. The 
 **The nature will support you, if your intensity is strong on achieving a goal. 
 The intensity of nature turning towards you  is propotional to your sincerity.**
 
- 
+The curimstance or e
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMTg3NTc5MTUsLTg4NTU5MDM0NywtMj
-A1NDI3ODMxOSwtMTc5OTc0NjYwMCwyNjg4NzQ3NzIsNzA2NzUy
-OTQ4LDc2MDkwNTQ3MywzNTQyMzY2NzddfQ==
+eyJoaXN0b3J5IjpbNDg5MzcwMDg0LC0yMTE4NzU3OTE1LC04OD
+U1OTAzNDcsLTIwNTQyNzgzMTksLTE3OTk3NDY2MDAsMjY4ODc0
+NzcyLDcwNjc1Mjk0OCw3NjA5MDU0NzMsMzU0MjM2Njc3XX0=
 -->
