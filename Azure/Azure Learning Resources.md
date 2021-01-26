@@ -2,8 +2,6 @@ Learning paths on MS Learn:
 
 https://docs.microsoft.com/en-us/learn/certifications/exams/az-204#two-ways-to-prepare
 
-
-
 Azure Code Samples:
 
 https://azure.microsoft.com/en-us/resources/samples/?sort=0
@@ -62,3 +60,9 @@ Microsoft has a Github page that contains labs for AZ-204:
 [Join the course Azure Facebook Group](https://www.facebook.com/groups/azureusergroupunofficial/1) - so you can connect with other students, share your projects and get feedback and exposure from the community.
 
 [AZure Frequently asked questions](http://azurefaq.ca/)
+
+## Managing Resources Using Command lines 
+
+[Azure Powershell](https://docs.microsoft.com/en-us/azure/azure-resource-manager/management/manage-resources-powershell)
+
+[Azure Cli](https://docs.microsoft.com/en-us/azure/azure-resource-manager/management/manage-resources-cli)
